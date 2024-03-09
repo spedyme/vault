@@ -1,0 +1,1 @@
+is an act or instance of placing two elements close together or side by side. This is often done in order to compare/contrast the two, to show similarities or differences, etc.

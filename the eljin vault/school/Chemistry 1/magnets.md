@@ -1,0 +1,7 @@
+
+[[diamagnetic]]
+
+[[paramagnetism]]
+
+[[ferromagnetism]]
+

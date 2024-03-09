@@ -1,0 +1,1 @@
+are attracted to an external magnetic field

@@ -1,0 +1,1 @@
+	coordinate bond is a two-center, two-electron covalent bond in which the two electrons derive from the same atom. 

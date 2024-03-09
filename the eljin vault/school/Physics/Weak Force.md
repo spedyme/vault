@@ -1,0 +1,3 @@
+
+
+opposite of [[Strong Force]]
